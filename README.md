@@ -16,7 +16,10 @@
 
 ###
 
-<p align="left">- 🐣 Creating experiences since 2025<br>- 📚 Learning English and feline 🐈‍⬛<br>- 🎯 Goals: Learn to speak English and - 🧠 improve my design skills<br>- 🕹️ I also play games and watch anime</p>
++🐣 Creating experiences since 2025
+📚 Learning English and feline 🐈‍⬛
+🎯 Goals: Learn to speak English and 🧠 improve my design skills
+🕹️ I also play games and watch anime
 
 ###
 
